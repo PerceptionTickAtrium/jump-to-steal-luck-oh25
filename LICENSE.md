@@ -1,4 +1,4 @@
-#  
+#  Experience jump to steal lucky blocks like never before with jump to steal lucky blocks Script stealth, the #1 Script. Includes god mode and esp for
 
 
 
